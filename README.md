@@ -70,6 +70,8 @@ Born and raised in Stevenage, Hamilton began his career in karting aged six, win
 
  Sir Lewis Carl Davidson Hamilton is the first black driver to compete in Formula One at the Australian Grand Prix in 2007 . He has won a joint-record seven World Drivers' Championship titles, tied with Michael Schumacher . Hamilton holds the records for most wins (105), pole positions (
 
+### Screenshot:
+![Screenshot 2025-01-16 073443](https://github.com/user-attachments/assets/da14b96d-c207-4fdb-9363-6e31cf8d79d9)
 
 ---
 
